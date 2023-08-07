@@ -1,2 +1,2 @@
 # Assignment-2
-Thawishka - Peshandhi - Maheesha - Tharushi - Budhvin
+Thawishka - Pesandhi - Maheesha - Tharushi - Budhvin
